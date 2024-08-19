@@ -5,6 +5,7 @@
 - 📫 reach me through instagram @neko_nigga_
 - 😄 Pronouns: human
 - ⚡ Fun fact: i can draw
+- this has been edited
 
 <!---
 Paimon69420/Paimon69420 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
